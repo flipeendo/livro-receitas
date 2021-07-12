@@ -40,4 +40,4 @@
 
 4. Depois acrescente o Milho, e o Requeijão, deixe engrossar. Se necessário dissolva as 2 colheres de chá de amido de milho em leite frio e acrescente vai ajudar a engrossar!!!
 
-5.  Assim que tiver um caldo mais grosso, desligue o fogo e coloque a salsinha e tampe para abafar.
+5.   Assim que tiver um caldo mais grosso, desligue o fogo e coloque a salsinha e tampe para abafar.
